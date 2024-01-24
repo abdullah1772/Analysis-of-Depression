@@ -7,8 +7,11 @@ This journey through data unveils startling disparities: the silent epidemic of 
 ## Key insights include:
 
 The stark contrast in depression rates across continents, with alarming prevalence in specific regions.
+
 The nuanced age distribution of schizophrenia, revealing a pattern that beckons deeper understanding.
+
 The universality of mental health challenges, transcending geographical and cultural confines.
+
 This research is not just numbers—it's a narrative of human resilience, a call to action for global health priorities, and a reminder that behind every statistic is a life, a story, and a shared thread in the fabric of our humanity.
 
 Join me in this crucial conversation. Let's reshape our approach to mental health, one insight, one policy, one life at a time.
